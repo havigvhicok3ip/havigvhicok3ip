@@ -1,4 +1,4 @@
-# 👋 Hi, I'm havigvhicok3ip
+# 👋 Hi, I'm Johnathan
 
 🚀 **Blockchain Developer** | Smart Contracts | Web3 | DeFi
 
