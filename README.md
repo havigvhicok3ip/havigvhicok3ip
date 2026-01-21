@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Johnathan
+# 👋 Hi, I'm Laurenzo
 
 🚀 **Blockchain Developer** | Smart Contracts | Web3 | DeFi
 
